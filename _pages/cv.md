@@ -18,13 +18,13 @@ Education
 
 Work experience
 ======
-UMBC Athletics, Crew Member, Baltimore, MD(Internship)                              Spring 2025-Present
-  Assisted with the production of sports telecasts for multiple different sports with most broadcasting on ESPN+
-  Performed and gained experience with various machines like replay, switchers and cameras 
+UMBC Athletics, Crew Member, Baltimore, MD(Internship)---Spring 2025-Present
+  - Assisted with the production of sports telecasts for multiple different sports with most broadcasting on ESPN+
+  - Performed and gained experience with various machines like replay, switchers and cameras 
 
-Harris Teeter, Cashier, Darnestown, MD 	                                            June 2023 – Present
-  Provided timely, high-quality customer service in a fast-paced environment
-  Collaborated with managers and team members to optimize displays and maintain store cleanliness
+Harris Teeter, Cashier, Darnestown, MD---June 2023 – Present
+  - Provided timely, high-quality customer service in a fast-paced environment
+  - Collaborated with managers and team members to optimize displays and maintain store cleanliness
 
   Other experience can be found on paper resume 
   
